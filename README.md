@@ -11,4 +11,4 @@
 
 - eu sou um tipo de aluno que gosta de fica no seu kanto (piada) e fala pouco (ao menos na vida real) e no geral tira nota boa e é um aluno sei lá ...ok
 
-![](https://tenor.com/pt-BR/view/roblox-woman-girl-gif-6327088205177015702)
+![](https://media1.tenor.com/m/V85VM0QjzZYAAAAd/roblox-woman.gif)
